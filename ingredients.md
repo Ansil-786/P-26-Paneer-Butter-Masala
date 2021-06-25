@@ -8,7 +8,6 @@ Cream
 Red Chilli powder(Kashmiri)
 Haldi powder
 Garam masala.
-Turmeric powder.
 Ghee
 Kasturi Methi
 
